@@ -1,3 +1,3 @@
-![Image](https://github.com/user-attachments/assets/f29f1520-f668-44fe-b4f1-19ece4350694)
+![Image](https://github.com/user-attachments/assets/07886071-7214-438a-979a-f7b97828f231)
 
-📍 mostly in crk or dw area 
+📍 mostly in dw area 
